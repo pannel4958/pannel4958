@@ -1,0 +1,12 @@
+- click the link below and complete your registration or download the pdf form
+- Kindly provide us with your
+- Full Name
+- Rank
+- Division/Location and
+- Contact Number
+- [Click Here](https://nx.tn/Dlwat)
+- I.C.T.D.
+- Information and Communications Technology Division|103 Old Hope Road, Kingston 6, Jamaica
+- Directline:1(876) 927-5987 Ext. 50657 or 50646| Fax:1(876) -927-8064
+- Email address: ictd@jcf.gov.jm [Click Here](https://nx.tn/Dlwat)**
+- “Management of Crime with Information Technology”
